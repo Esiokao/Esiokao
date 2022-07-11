@@ -1,4 +1,4 @@
-- one man with one cat 🐈.
+- one man one cat 🐈.
 - caffeine addictied.
 - keep grinding.
 
